@@ -1,4 +1,11 @@
 
+
+
+
+  * [261121-赵晓：赚得世界之后——黄仁勋的得失与企业家的价值观探讨](https://www.asuswebstorage.com/navigate/a/#/s/2CDEE1B5AE0447048C13241D8F0C6930Y)
+  * [互动问答](https://www.asuswebstorage.com/navigate/a/#/s/EFAE1FB4668B45E2844B716D23AD0AD3Y)
+-------------------------------------------------------------
+
   * [261024-赵晓：我手里这张产权证，到底算不算数？——纳粹与苏联给企业家的一课](https://www.asuswebstorage.com/navigate/a/#/s/E7C9794C471948BE865EA943C69B8C98Y)
   * [互动问答](https://www.asuswebstorage.com/navigate/a/#/s/06E49AC963AF4610916AF4CD2A690AE4Y)
 -------------------------------------------------------------
